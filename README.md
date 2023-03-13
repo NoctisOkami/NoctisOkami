@@ -5,7 +5,7 @@
 
 Heya!<br>
 The name be Noctis (or Noc for short). Most know me as Noctis Ōkami.<br>
-I'm 20, a femboy, and taken by my bf, Ash. I'm actually male, but I'm fine with "she/her" pronouns. Either works though, as I won't yell at you for getting it wrong.<br>
+I'm 21, a femboy, and taken by my bf, Ash. I'm actually male, but I'm fine with "she/her" pronouns. Either works though, as I won't yell at you for getting it wrong.<br>
 <br>
 I've been in the furry fandom for more than 7 years.<br>
 I'm more into the artistic side. Majority of my art is furry related (obviously), but at rare occurrence I could do icons and banners for others.<br>
