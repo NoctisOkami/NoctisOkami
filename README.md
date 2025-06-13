@@ -1,13 +1,23 @@
-## =====[ About Me ]=====
+## =========[About Me]=========
 
 <p>
-⚔️ A mom built to be a tank! 💙<br>
+⚔️ V3.3 - Supercharged Combat Mom 💙
 <br>
-Yes I'm a furry‚ cry about it․ I've been that way for 8 years․ I'm also taken by my adorable bf‚ AshTheArcticFox․<br>
+Ascend to the skies! 
 <br>
-I'm just your everyday optimistic but tough mamagen․ I'm 21 and I'm actually male‚ but I'm fine with she⁄her pronouns․ Either works as I won't yell at you for getting it wrong․<br>
 <br>
-I'm also a digital artist‚ a bot developer‚ and a Twitch streamer!<br>
+I'm just your everyday optimistic but tough mamagen with a beast․ Been a furry for 10 years with the scars that changed me forever.
+<br>
+I'm a male, 23 years old, She/Her (Preferred but not required, I'm fine with any)
+<br>
+I'm taken by my twinkie, AshTheArcticFox․
+<br>
+<br>
+I'm also an artist‚ an avgeek with a love for Airbus aircrafts and Su-57s‚ and a Twitch streamer․ 
+<br>
+<br>
+Owner of the Night Furs Realmǃ Check it out and feel free to join our Discordǃ
+<br>
 <br>
 Discord Username: noctis_okami
 </p>
