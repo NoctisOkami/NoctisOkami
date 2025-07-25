@@ -1,9 +1,9 @@
 ## =========[About Me]=========
 
 <p>
-⚔️ V3.3 - Supercharged Combat Mom 💙
+⚔️ V3.4 - WAR MOM 🔥
 <br>
-Ascend to the skies! 
+The Beast of Wrath
 <br>
 <br>
 I'm just your everyday optimistic but tough mamagen with a beast․ Been a furry for 10 years with the scars that changed me forever.
